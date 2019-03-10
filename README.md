@@ -1,2 +1,2 @@
 # Designing-Sample-Work-
-I have designed brochure, menu cover, business card
+I have designed brochure, menu cover, business card using CorelDRAW
